@@ -17,3 +17,4 @@
 Как это должно быть оформлено (ГОСТ)</p>
 ****</p>
 https://docs.google.com/document/d/1JJQBvgG03DYTDtfX1Xhg1qLU2b5gg0hgSMqqzUKN7KI/edit
+https://docs.google.com/document/d/15NGP3YCQLEmcp9j44npxdbZnURLprUtboLepsRRiJVM/edit?usp=sharing
